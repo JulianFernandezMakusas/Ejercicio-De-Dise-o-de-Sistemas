@@ -1,1 +1,1 @@
-![TP 0 - Diseño de Sistemas](https://github.com/JulianFernandezMakusas/Ejercicio-De-Dise-o-de-Sistemas/assets/102546507/74b219e4-ff98-49f4-90d2-084a5f51492c)
+![Diagrama en blanco - Página 2](https://github.com/JulianFernandezMakusas/Ejercicio-De-Dise-o-de-Sistemas/assets/102546507/218ade1a-3c91-4f84-8c7d-1413a243b3ab)
